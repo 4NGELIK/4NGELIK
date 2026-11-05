@@ -18,7 +18,7 @@
 
 ###
 
-<h6 align="center">biochem student || queer ⟢<br><br>the #1 aki hayakawa selfshipper 𓏲ּ𝄢</h6>
+<h6 align="center">biochem student || queer ⟢<br><br>the #1 aki hayakawa and valeriy selfshipper 𓏲ּ𝄢</h6>
 
 ###
 
